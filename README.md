@@ -1,1 +1,1 @@
-E dringhiri
+E dringhiri. Torna. Lasca.
